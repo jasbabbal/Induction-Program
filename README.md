@@ -22,3 +22,8 @@ Firstly Dr.Harpreet kaur grewal (HOD of applied sciences department) welcomed us
 Our chief Guest, S.Maheshinder singh grewal(Ex cabinet minister and senior trustee of Nankana Sahib Education Trust) inspired us with his speech on discipline ,consistency ,hardwork ,purpose and vision of college.After this there was a break for lunch.
 
 At last ,we all visited our respective departments ,met faculty members and explored labs.It was a day full of motivation,guidance ,inspiration and happiness
+
+### Day 2
+##### 1st August,2025
+
+our second day of induction started with the expert lecture by Dr. Priya darshni mam on "universal health values.
