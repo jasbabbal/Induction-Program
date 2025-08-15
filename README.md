@@ -34,3 +34,14 @@ After break , we were having our english proficiency test at 1:30pm
 and maths proficiency test at 2:30pm.
 after giving test we went to our home.
 
+### Day 3
+##### 4th August,2025
+
+on this day at 8:30am, first session was held by a club named causmic club.we got to know many things about that club like they organize many college events, even our induction programme was also organized by them.
+they shared information about github 
+and how to make a repository of our induction.
+
+The next session was of Dr. Priya Darshni mam on "universal health value part 2".It was an amazing session as we got so much life enriching knowledge.After break, we were having our first P2P lecture.In this lecture our seniors taught us about PPS subject some of its basic concepts.Our seniors are very much lenient and friendly with us.Our last lecture was of English by professor Manjot Kaur after attending that we left for home.
+
+
+
