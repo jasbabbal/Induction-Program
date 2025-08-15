@@ -43,5 +43,15 @@ and how to make a repository of our induction.
 
 The next session was of Dr. Priya Darshni mam on "universal health value part 2".It was an amazing session as we got so much life enriching knowledge.After break, we were having our first P2P lecture.In this lecture our seniors taught us about PPS subject some of its basic concepts.Our seniors are very much lenient and friendly with us.Our last lecture was of English by professor Manjot Kaur after attending that we left for home.
 
+### Day 4
+##### 5th August,2025
+On 4th day, Our induction started at 1:30pm.our first lecture was on "motor sports" by Mr. Gautam Murria.It was very interesting lecture.We got to know about many new things about motor sports,how they works,their assembling,their efficiency and ended with some interesting and mysterious questions and answers.
+
+Next lecture was of Mrs. Shaffy Makkar on the topic "Millets Super Food".It was very useful lecture as she emphasized on the importance of millets in our daily diet due to their high nutritional value.we can add millets like jowar, ragi,etc.the day ended with this lecture.
 
 
+### Day 5
+##### 6th August,2025
+5th day started with the expert lecture by Mr. Manpreet singh on the topic "Fitness for Engineers" which took attention of all the students as nowadays main problem is lack of fitness.He taught us various activities which help us to remain fit phsically and mentally.Many students took part in a push up competition arranged on the stage.
+
+Our next lecture was of brigadier P S Cheema sir.
