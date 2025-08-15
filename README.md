@@ -26,4 +26,11 @@ At last ,we all visited our respective departments ,met faculty members and expl
 ### Day 2
 ##### 1st August,2025
 
-our second day of induction started with the expert lecture by Dr. Priya darshni mam on "universal health values.
+our second day of induction started with the expert lecture by Dr. Priya darshni mam on "universal health values.She inspired us by her motivation speech.she taught us how to explore our aspirations,their fulfilment and deal with the concerns and problems.
+
+At 11am,Dr. Arvind Dhingra(director-STEP and incharge-TAC) introduced us about various clubs and societies in the college.He also arranged two games for us and gave chocolates to the winners of the games.
+
+After break , we were having our english proficiency test at 1:30pm
+and maths proficiency test at 2:30pm.
+after giving test we went to our home.
+
