@@ -52,6 +52,20 @@ Next lecture was of Mrs. Shaffy Makkar on the topic "Millets Super Food".It was 
 
 ### Day 5
 ##### 6th August,2025
-5th day started with the expert lecture by Mr. Manpreet singh on the topic "Fitness for Engineers" which took attention of all the students as nowadays main problem is lack of fitness.He taught us various activities which help us to remain fit phsically and mentally.Many students took part in a push up competition arranged on the stage.
+5th day started with the expert lecture by Mr. Manpreet singh on the topic "Fitness for Engineers" which took attention of all the students as nowadays main problem is lack of fitness.He taught us various activities which help us to remain fit physically and mentally.Many students took part in a push up competition arranged on the stage.
 
-Our next lecture was of brigadier P S Cheema sir.
+Our next lecture was of brigadier P S Cheema sir.He gave knowledge about NCC,army,navy,air force,all about their duties,responsibilities,respect towards nation.He gave speech on willpower and gave us a game to play which involves willpower.After that we left for our class rooms for our P2P and physics lecture.With this our today's lectures ended.
+
+
+### Day 6
+##### 7th August,2025
+6th day started with our first lecture of physics at 9:30am by professor Amarjot Kaur in which we were taught lesson about lasers,their principle,formation,characterstics,etc.our next lecture was of P2P in which we learned about PPS using C++ coding language.It was very interesting lecture.
+
+At 12:30pm the break ended,then we were asked to report in auditorium for our next lecture by Incharge of CML Dr. Lakhvir Singh Khana.It was an amazing and mind diverting lesson.At 1:30pm Dr. Jasvir Singh Grewal(Incharge-NSS) gave us information about NSS(National Service Scheme). They told about their work,motive,function,aim.NSS volunteers arranged a kirtan programme,a comedy skit and a game.Then 6th day ended with lot of enjoyment and learning.
+
+### Day 7
+##### 8th August,2025
+It was last day of our induction programme our first lecture started at 11 am of English lecture which ended at 12 am.After break at 1pm,our next lecture was of Maths by professor Sukhminder singh.He told us various applications on mobile to make our study easier,efficient and time saving. Our last lecture was of Economics by professor Sanjam Kaur Sidhu.she taught us some basic concepts and meaning of economics.The last day of induction programme ended with formation if our ID cards.
+
+## CONCLUSION
+In the nutshell, I can say that it was a best induction programme.It was amazing experience which motivated and guided us for our better future ahead.I liked the college very much.I hope this college will fullfil my dreams and aspirations.
